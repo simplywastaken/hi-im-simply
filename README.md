@@ -1,6 +1,6 @@
 Something fun for me to do,
 though what you see may not be true.
-What you find will reveal things uncoiled,
+What you find will leave things uncoiled,
 so please don't look. Don't be spoiled.
 
 Straightforward/Non-cryptic translation:
